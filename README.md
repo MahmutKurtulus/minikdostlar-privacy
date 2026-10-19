@@ -1,0 +1,1 @@
+# minikdostlar-privacy
